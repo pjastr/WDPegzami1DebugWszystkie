@@ -1,0 +1,1 @@
+# WDPegzami1DebugWszystkie
